@@ -1,2 +1,4 @@
-# NTUBS_39th_Investiture
-A 3D printed trophy to be given to the outgoing 39th NTUBS mainCommittees 
+# Lit En's 3D printing REPO💌
+
+## WHY DRAW WHEN YOU CAN 3D print it?
+1. NTUBS 40th AGM Trophy🏆 and Token
